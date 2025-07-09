@@ -10,4 +10,4 @@
 
 该平台提供丰富的国产精品免费资源，涵盖多种成人题材及高清大片。用户可以查看详细的影片信息，包括时长、演员及清晰度，方便选择喜爱的内容。系统支持高清流畅播放，并能根据网络环境自动调整画质，保障最佳观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yeah20250709/yeah20250709 ）</span>
